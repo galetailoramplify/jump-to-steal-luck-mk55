@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://galetailoramplify.github.io/jump-to-steal-luck-mk55/) |
  |---------------------|----------------------:|
 
 
